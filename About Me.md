@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @JHTT-mobo !
+- 👀 I’m interested in Computed Releated Technologies! Example Hardware, PC Building, Troubleshooting etc.
+- 🌱 I’m currently trying to learn to code in Python and HTML
+- 📫 You can reach me at jinhaotechtips@gmail.com !
+- ‼ Oh and i also have a Tech Channel on youtube! https://www.youtube.com/channel/UCPZVruoIRK99z-8_A4hf4cw Feelfree to subscribe :D, i will appreciate it.
+- Anyways that's all for now, Enjoy and keep yourself safe (●'◡'●)
